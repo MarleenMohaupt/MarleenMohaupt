@@ -1,1 +1,1 @@
-Hello eberyone 👋 , i'm Marleen a GitHub NEWBIE 🫢
+Hello everyone 👋 , i'm Marleen a GitHub NEWBIE 🫢
